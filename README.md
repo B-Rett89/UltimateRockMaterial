@@ -1,3 +1,5 @@
+![Rock Preview](rock_preview.png)
+
 > “That’s just a stupid boulder! 🪨”  
 >  
 > It’s not just a boulder — it’s a **rock materiaaal!** 😭  
